@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bobyjljsn@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1cl1HeCulhRBDiL4hmA2YbjANGEaDzC0G?usp=sharing](https://drive.google.com/drive/folders/1cl1HeCulhRBDiL4hmA2YbjANGEaDzC0G?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1cl1HeCulhRBDiL4hmA2YbjANGEaDzC0G?usp=sharing](https://drive.google.com/file/d/15qdh_h6IyVWTcbV3uwRKG73E53e_3II9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
